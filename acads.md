@@ -1,3 +1,3 @@
 # Acads
 
-Acads related content here
+Acads related content coming here soon
