@@ -1,3 +1,4 @@
 # Acads
 
-Acads related content coming here soon
+Notes and other tips for coursework coming soon!
+Contact us if you'd like to contribute :)
